@@ -10,10 +10,4 @@ Fun fact! I have been in band for all of middle and nearly all of highschool    
 
 Favorite classes: Pre-calculus and Computer Science 3 'n stuff
 
-
-
-
-
-
-
 Pineapples 'n stuff
